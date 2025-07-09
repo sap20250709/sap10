@@ -10,4 +10,4 @@
 
 <p>为喜爱亚洲成人影视的观众打造，本页囊括热门国产、日韩精品与麻豆官方入口。无需下载，点开即播，高清不卡体验尽享。分类清晰，更新及时，是寻找高质量片源的好去处。</p>
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/sap20250709/sap10 ）</span>
